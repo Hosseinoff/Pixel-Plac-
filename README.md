@@ -1,2 +1,0 @@
-# Pixel-Plac-
-Hello
